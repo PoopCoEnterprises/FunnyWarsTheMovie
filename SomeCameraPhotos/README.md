@@ -1,0 +1,1 @@
+Photos that were to be used as textures for sets that were never made
