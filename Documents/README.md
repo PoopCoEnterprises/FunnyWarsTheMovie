@@ -1,0 +1,1 @@
+This is the document that was used to (briefly) practice Russian during a time when it was thought that Dr. Poopy Fart would have an epic russian accent. Two days after this was printed, it was decided that Dr. Poopy Fart would have a voice similar to Dr. Robotnik
