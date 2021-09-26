@@ -1,1 +1,1 @@
-Photos that were to be used as textures for sets that were never made
+Assets for the cancelled Funny Wars Movie~~, some of which were barely shown to the other members of the team~~
