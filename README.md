@@ -1,1 +1,1 @@
-This repository contains the assets of the cancelled "Funny Wars: The Movie"~~, including things barely even seen by the cast members~~
+Photos that were to be used as textures for sets that were never made
